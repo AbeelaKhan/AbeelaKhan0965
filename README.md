@@ -1,4 +1,4 @@
-# AbeelaKhan0965
+# AbeelaKhan(24k-0965)
 - 👋 Hi, I’m @AbeelaKhan.
 - 👀 I'm interested in art and crafting.
 - 🌱 I’m currently learning computer science.
